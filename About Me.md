@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @supettp
+- 👀 I’m interested in gaming and coding
+- 📫 How to reach me
+- 1-Instagram:super_player_gg
+- 2-Whatsapp:+964 07742186063
